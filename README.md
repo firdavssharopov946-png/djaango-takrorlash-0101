@@ -1,0 +1,1 @@
+# djaango-takrorlash-0101
